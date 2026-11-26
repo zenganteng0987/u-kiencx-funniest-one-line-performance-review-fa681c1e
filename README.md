@@ -1,0 +1,4 @@
+[![make.fun LIVE](https://make.fun/badge/u-kiencx-funniest-one-line-performance-review-fa681c1e.svg)](https://make.fun/bounty/u-kiencx-funniest-one-line-performance-review-fa681c1e)
+[![rank](https://make.fun/badge/u-kiencx-funniest-one-line-performance-review-fa681c1e/zenganteng0987/u-kiencx-funniest-one-line-performance-review-fa681c1e/rank.svg)](https://make.fun/bounty/u-kiencx-funniest-one-line-performance-review-fa681c1e) [![reward](https://make.fun/badge/u-kiencx-funniest-one-line-performance-review-fa681c1e/zenganteng0987/u-kiencx-funniest-one-line-performance-review-fa681c1e/reward.svg)](https://make.fun/bounty/u-kiencx-funniest-one-line-performance-review-fa681c1e)
+# u-kiencx-funniest-one-line-performance-review-fa681c1e
+Funniest One-Line Performance Review — [make.fun bounty](https://make.fun/bounty/u-kiencx-funniest-one-line-performance-review-fa681c1e)
